@@ -1,1 +1,11 @@
-# details
+Practical 2
+Thank you for reaching out to Transportation Services regarding your citation. We understand that receiving a citation can be frustrating and appreciate you taking the time to share your concerns.
+University policy requires that a valid parking permit be properly registered to the vehicle’s license plate and active at all times while parked on campus. Parking regulations are enforced in accordance with the California Vehicle Code and SDSU Parking Rules & Regulations, and citations are issued based on the information available at the time, including license plate recognition and system records.
+For details about the Parking Permit Refund Policy, please visit the Parking Permit Refund Policy webpage.
+If you believe the citation was issued in error, you may submit a formal appeal through the Transportation Portal and provide any supporting documentation. Please note that the burden of proof rests with the appellant. All appeals are thoroughly reviewed, and any citation found to have been issued in error will be dismissed.
+Our goal is to ensure parking regulations are applied fairly and consistently across campus. If you have any additional information you would like considered, please include it with your appeal or reply to this message. We appreciate your patience and are here to assist you.
+Practical 3
+Thank you for contacting Transportation Services about your MTS transit pass refund. We understand your concerns and appreciate you taking the time to explain your situation.
+Under SDSU’s transit pass refund policy, prorated refunds for unactivated semester passes are issued in accordance with the published MTS Refund Schedule. Refund eligibility depends on the pass not being activated in PRONTO, and the refund amount is determined by when the request is submitted during the semester.
+For unactivated passes refunded during weeks 2 and 3 of the semester, 75% of the pass cost is eligible for refund. Since your pass was not activated and your request was submitted within the applicable timeframe, you may qualify for this prorated amount.
+If you believe any details regarding your activation status or eligibility need further review, please provide any relevant information, including your PRONTO activation status and the date your request was submitted. We are happy to review your case and ensure the appropriate refund is processed in accordance with SDSU policy.
