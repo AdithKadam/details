@@ -4,6 +4,7 @@ University policy requires that a valid parking permit be properly registered to
 For details about the Parking Permit Refund Policy, please visit the Parking Permit Refund Policy webpage.
 If you believe the citation was issued in error, you may submit a formal appeal through the Transportation Portal and provide any supporting documentation. Please note that the burden of proof rests with the appellant. All appeals are thoroughly reviewed, and any citation found to have been issued in error will be dismissed.
 Our goal is to ensure parking regulations are applied fairly and consistently across campus. If you have any additional information you would like considered, please include it with your appeal or reply to this message. We appreciate your patience and are here to assist you.
+
 Practical 3
 Thank you for contacting Transportation Services about your MTS transit pass refund. We understand your concerns and appreciate you taking the time to explain your situation.
 Under SDSU’s transit pass refund policy, prorated refunds for unactivated semester passes are issued in accordance with the published MTS Refund Schedule. Refund eligibility depends on the pass not being activated in PRONTO, and the refund amount is determined by when the request is submitted during the semester.
